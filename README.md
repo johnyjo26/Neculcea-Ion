@@ -1,0 +1,2 @@
+# Neculcea-Ion
+Programator junior
